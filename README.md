@@ -1,2 +1,2 @@
-# Minha página github
-© GuiFlor 'Direitos reservados: Todos os direitos reservados.
+# Page-Art github
+© LadyGui 'Direitos Autorais: Todos os direitos reservados.
